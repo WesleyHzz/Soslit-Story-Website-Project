@@ -1,3 +1,3 @@
-Sources:
-Images - ChatGPT
-Image Hosting - imgur.com
+🌱 Sources:  
+📸 Images - ChatGPT  
+🌠 Image Hosting - imgur.com
